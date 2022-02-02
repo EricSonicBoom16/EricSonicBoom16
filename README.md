@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @EricSonicBoom16
 - 👀 I’m interested in ... modding and fixing consoles
-- 🌱 I’m currently learning ... How to mod the ps3 and ps4 and also jtag the xbox 36o phat
+- 🌱 I’m currently learning ... How to mod the ps3 and ps4 and also jtag the xbox 360 phat
 - 💞️ I’m looking to collaborate on ... Wii,psp,psvita,psp,ps1,ps2,ps3,ps4,ps5,Nintend Switch.
 - 📫 How to reach me ... EricSonicBoom16 on all platforms!
